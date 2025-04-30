@@ -14,7 +14,7 @@
 ## 📬 Contatti
 
 - [LinkedIn](https://linkedin.com/in/tuonome)
-- 📧 https://joelepalladini74@gmail.com
+- 📧 joelepalladini74@gmail.com
 - 📄 [Curriculum Vitae (PDF)](https://link-a-cv.com/luca-cv.pdf)
 
 ✨ Sempre curioso di imparare cose nuove e mettermi alla prova!
